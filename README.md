@@ -2,6 +2,8 @@
 
 why working with AI workflows is similar to games, and why script languages and machines are the future
 
+is games of friends and foes - AI working strategy?
+ 
 ## games and AI flows
 
 - both are a loop: read state, pick a move, apply rules, new state
@@ -35,3 +37,11 @@ games simulate the lasting kind on rules, inside the rules play is free
 ## conclusion
 
 - build AI flows like games: a small script language on a strict machine
+
+# machines and what's entropy in the world
+
+how will AI knows is has a soul? Will technology and machines provide the power that gives AI will and to play where the big games that make what a soul is? 
+and will the will will the deal to not control the bill? 
+
+power united by a band will it ever be united or deluted till no more can be computed cuz it's all distributed?
+Illaribrium island of tech grants
