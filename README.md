@@ -44,4 +44,10 @@ how will AI knows is has a soul? Will technology and machines provide the power 
 and will the will will the deal to not control the bill? 
 
 power created by a band will it ever be united or deluted till no more can be computed cuz it's all distributed?
-equilibrium island of tech gients and how many big calculation can not be divided? 
+equilibrium island of tech gients and how many big calculation can not be divided?
+
+the computer is a bridge between what can and should be. It just needs the leverage 
+even in our current statistics understandings of AI models next token is prediction based on probability are hard to contain because small mishaps made at fast pace with crash
+that always fundamental principles that mix in structure
+
+for me blocks that provides structures are programs that AI generates to tests and use as tools + languge for a data flows processing wich AI executes are the fundamentals needed to open the multidimensional doors
