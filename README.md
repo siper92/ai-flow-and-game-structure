@@ -51,3 +51,6 @@ even in our current statistics understandings of AI models next token is predict
 that always fundamental principles that mix in structure
 
 for me blocks that provides structures are programs that AI generates to tests and use as tools + languge for a data flows processing wich AI executes are the fundamentals needed to open the multidimensional doors
+
+# for the human operator 
+- **it's alwais you and your vice the enemy on the flor**
