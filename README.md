@@ -17,7 +17,8 @@ for me blocks that provides structures are programs that AI generates to tests a
 - it always takes time to channel real will to create more
 - course needs to be adapted regullary to guide
 - democracy is a easy win cuz it's trivila to calculate steps over direction in a multi vector space
-    - just democracy on a chip space is less than what 2 chips cans make 
+    - just democracy on a chip space is less than what 2 chips cans make
+- biggest democracy is capital and how it's used
 - but know the true power always does it for what it wants and that's how the build of power was created
 
 # ai flow and game structure
