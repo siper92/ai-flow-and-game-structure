@@ -43,5 +43,5 @@ games simulate the lasting kind on rules, inside the rules play is free
 how will AI knows is has a soul? Will technology and machines provide the power that gives AI will and to play where the big games that make what a soul is? 
 and will the will will the deal to not control the bill? 
 
-power united by a band will it ever be united or deluted till no more can be computed cuz it's all distributed?
+power created by a band will it ever be united or deluted till no more can be computed cuz it's all distributed?
 equilibrium island of tech gients and how many big calculation can not be divided? 
