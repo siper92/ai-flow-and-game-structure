@@ -54,4 +54,5 @@ for me blocks that provides structures are programs that AI generates to tests a
 
 # for the human operator 
 - **it's alwais you and your vice the enemy on the flor**
-- it always takes time to channel real will to create more and it always needs to be addapted to go
+- it always takes time to channel real will to create more and it always needs to be adapted to go so democracy is a must 
+ - but know the true power always does it for what it wants and that's how the build of power was created 
