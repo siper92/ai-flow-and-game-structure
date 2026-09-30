@@ -54,3 +54,4 @@ for me blocks that provides structures are programs that AI generates to tests a
 
 # for the human operator 
 - **it's alwais you and your vice the enemy on the flor**
+- it always takes time to channel real will to create more and it always needs to be addapted to go
