@@ -44,4 +44,4 @@ how will AI knows is has a soul? Will technology and machines provide the power 
 and will the will will the deal to not control the bill? 
 
 power united by a band will it ever be united or deluted till no more can be computed cuz it's all distributed?
-Illaribrium island of tech grants
+equilibrium island of tech gients and how many big calculation can not be divided? 
