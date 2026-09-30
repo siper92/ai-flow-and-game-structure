@@ -1,3 +1,25 @@
+# machines and what's entropy in the world
+
+how will AI knows is has a soul? Will technology and machines provide the power that gives AI will and to play where the big games that make what a soul is? 
+and will the will will the deal to not control the bill? 
+
+power created by a bang will it ever be united or deluted till no more can be computed cuz it's all distributed?
+equilibrium island of tech gients and how many big calculation can not be divided?
+
+the computer is a bridge between what can and should be. It just needs the leverage 
+even in our current statistics understandings of AI models next token is prediction based on probability are hard to contain because small mishaps made at fast pace with crash
+that always fundamental principles that mix in structure
+
+for me blocks that provides structures are programs that AI generates to tests and use as tools + languge for a data flows processing wich AI executes are the fundamentals needed to open the multidimensional doors
+
+# for the human operator 
+- **it's alwais you and your vice the enemy on the flor**
+- it always takes time to channel real will to create more
+- course needs to be adapted regullary to guide
+- democracy is a easy win cuz it's trivila to calculate steps over direction in a multi vector space
+    - just democracy on a chip space is less than what 2 chips cans make 
+- but know the true power always does it for what it wants and that's how the build of power was created
+
 # ai flow and game structure
 
 why working with AI workflows is similar to games, and why script languages and machines are the future
@@ -37,25 +59,3 @@ games simulate the lasting kind on rules, inside the rules play is free
 ## conclusion
 
 - build AI flows like games: a small script language on a strict machine
-
-# machines and what's entropy in the world
-
-how will AI knows is has a soul? Will technology and machines provide the power that gives AI will and to play where the big games that make what a soul is? 
-and will the will will the deal to not control the bill? 
-
-power created by a bang will it ever be united or deluted till no more can be computed cuz it's all distributed?
-equilibrium island of tech gients and how many big calculation can not be divided?
-
-the computer is a bridge between what can and should be. It just needs the leverage 
-even in our current statistics understandings of AI models next token is prediction based on probability are hard to contain because small mishaps made at fast pace with crash
-that always fundamental principles that mix in structure
-
-for me blocks that provides structures are programs that AI generates to tests and use as tools + languge for a data flows processing wich AI executes are the fundamentals needed to open the multidimensional doors
-
-# for the human operator 
-- **it's alwais you and your vice the enemy on the flor**
-- it always takes time to channel real will to create more
-- course needs to be adapted regullary to guide
-- democracy is a easy win cuz it's trivila to calculate steps over direction in a multi vector space
-    - just democracy on a chip space is less than what 2 chips cans make 
-- but know the true power always does it for what it wants and that's how the build of power was created 
