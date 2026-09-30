@@ -43,7 +43,7 @@ games simulate the lasting kind on rules, inside the rules play is free
 how will AI knows is has a soul? Will technology and machines provide the power that gives AI will and to play where the big games that make what a soul is? 
 and will the will will the deal to not control the bill? 
 
-power created by a band will it ever be united or deluted till no more can be computed cuz it's all distributed?
+power created by a bang will it ever be united or deluted till no more can be computed cuz it's all distributed?
 equilibrium island of tech gients and how many big calculation can not be divided?
 
 the computer is a bridge between what can and should be. It just needs the leverage 
@@ -54,5 +54,8 @@ for me blocks that provides structures are programs that AI generates to tests a
 
 # for the human operator 
 - **it's alwais you and your vice the enemy on the flor**
-- it always takes time to channel real will to create more and it always needs to be adapted to go so democracy is a must 
- - but know the true power always does it for what it wants and that's how the build of power was created 
+- it always takes time to channel real will to create more and
+- course needs to be adapted regullary to guide\
+- democracy is a must win vuz it's easy to calculate the multi vector space
+    - just democracy on a chip space
+- but know the true power always does it for what it wants and that's how the build of power was created 
