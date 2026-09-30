@@ -54,8 +54,8 @@ for me blocks that provides structures are programs that AI generates to tests a
 
 # for the human operator 
 - **it's alwais you and your vice the enemy on the flor**
-- it always takes time to channel real will to create more and
-- course needs to be adapted regullary to guide\
-- democracy is a must win vuz it's easy to calculate the multi vector space
-    - just democracy on a chip space
+- it always takes time to channel real will to create more
+- course needs to be adapted regullary to guide
+- democracy is a easy win cuz it's trivila to calculate steps over direction in a multi vector space
+    - just democracy on a chip space is less than what 2 chips cans make 
 - but know the true power always does it for what it wants and that's how the build of power was created 
